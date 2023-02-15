@@ -1,4 +1,4 @@
-![img](https://cdn.nlark.com/yuque/0/2023/png/26025412/1676449002328-3a24031a-2251-432a-a3aa-e5732d74cc22.png)
+![img](https://cdn.nlark.com/yuque/0/2023/png/26025412/1676450069358-7eef39ee-e23a-42c0-80b9-b67f66add6ab.png)
 
 ## Cerberus
 
